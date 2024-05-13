@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...e1q
 - 😄 Pronouns: ...
-- ⚡ Fun fact: im sweet as f
+- ⚡ Fun fact: im sweet as
 adwsawd
 <!--- a
 d4dman/d4dman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
