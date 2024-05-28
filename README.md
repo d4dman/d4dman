@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...a!!!h !
 - 💞️ I’m looking to collaborate on ...jh
 - 📫 How to reach me ...d
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...!
 - ⚡ Fun fact: im sweet asad
 adwsawdads
 <!--- a
