@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @d4dman
 - 👀 I’m interested in you!!awd
-- 🌱 I’m currently learning ...a!!!h !
+- 🌱 I’m currently learning ...a!!!h !!
 - 💞️ I’m looking to collaborate on ...jh111
 - 📫 How to reach me ...d
 - 😄 Pronouns: ...!
