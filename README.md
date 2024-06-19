@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...a!!!h !!1122!
 - 💞️ I’m looking to collaborate on ...jh1111dhgdg1211ads
 - 😄 Pronouns: ...!!kk
-- ⚡ Fun fact: im sweet asad!!!1
+- ⚡ Fun fact: im sweet asad!!!1CAD
 adwsawdadsparty hard
 <!--- a11
 d4dman/d4dman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
