@@ -2,7 +2,7 @@
 - 👀 I’m interested in you!!awd
 - 🌱 I’m currently learning ...a!!!h !!!
 - 💞️ I’m looking to collaborate on ...- 😄 Pronouns: 
-- ⚡ Fun fact: im sweet asad!!!
+- ⚡ Fun fact: im sweet asad!!!de
 - !
 adwsawdadsparty  adw
 <!--- a11ad
