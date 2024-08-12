@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @d4dman
 - 👀 I’m interested in you!!awd
 - 🌱 I’m currently learning ...a!!!h !!!
-- 💞️ I’m looking to collaborate on ...- 😄132
+- 💞️ I’m looking to collaborate on ...- 😄
 adwsawdadsparty  vwefrafdwedwdrfe
 <!--- a11ad11adshboin
 d4dman/d4dman is a ✨ special ✨ repository because its `README.md` (this filge) appears on your GitHub profile.adw
