@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on ...- 😄
 adwsawdadsparty  vwefrafdwedwdrfewwda
 <!--- a11ad11adshboin
-d4dman/d4dman is a ✨ special ✨ repository because its `README.md` (this filge) appears on your GitHub profile.adw
+d4dman/d4dman is a ✨ special ✨ repository because its `README.md` (this filge) appears on your GitHub profile.adwaaa
 You can click the Preview link to take a look at your changes.ss
 --->
