@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @d4dman
 - 👀 I’m interested in you!!awd
-- 🌱 I’m currently learning ...a!!!h !!!
+- 🌱 I’m currently learning ...a!!!h !!!w
 - 💞️ I’m looking to collaborate on ...- 😄1
 adwsawdadsparty  !!
 <!--- a11ad11adshboinaaw
